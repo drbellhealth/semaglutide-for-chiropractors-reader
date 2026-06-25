@@ -1,1 +1,0 @@
-# semaglutide-for-chiropractors-reader
